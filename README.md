@@ -1,1 +1,1 @@
-# aswathy_arjun_wedding
+# arjun_aswathy_wedding
